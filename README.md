@@ -1,0 +1,1 @@
+# fairy-tail-color-pages
